@@ -1,0 +1,1 @@
+# shurikatik.github.io
